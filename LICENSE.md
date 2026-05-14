@@ -1,4 +1,4 @@
-# 
+# Enhance Affinity Designer for macOS with Affinity Designer for macOS ultimate Filter: asset management & gradient maps, the #1 filter. Includes asset management and gradient maps
 
 
 
